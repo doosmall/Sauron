@@ -1,1 +1,1 @@
-many happy thing will be happen.
+many happy things will happen.
